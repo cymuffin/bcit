@@ -2,3 +2,7 @@ BCIT
 clark is a type of salad
 
 KFC's out
+
+HEY CLARK DONT LET ME DOWN,
+DO THE ASSIGNMENT,
+AND MAKE IT BETTER
